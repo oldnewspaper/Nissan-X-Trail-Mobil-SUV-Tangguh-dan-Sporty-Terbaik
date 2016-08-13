@@ -5,7 +5,6 @@ Melihat potensi pasar akan besarnya minat konsumen terhadap mobil SUV hingga saa
 
 Untuk menghindari situasi yang berpotensi menimbulkan bahaya, All New Nissan X-Trail didukung dengan teknologi baru dan terbaik yaitu Chassis Control. Teknologi ini sangat membantu ketika anda membutuhkan untuk berakselerasi secara cepat. Ketangguhan performa dan kecanggihan Nissan X-Trail telah menjawab tantangan alam, seakan mobil SUV tanggu dan sporty terbaik ini siap mengajak anda untuk terus melesat dan berpetualang lebih jauh.
 
-Source: **[OLD NEWSPAPER][2]**
+Source: **[OLD NEWSPAPER][1]**
 
-  [1]: http://ferry-bachtiar.blogspot.com/2016/02/nissan-x-trail-mobil-suv-tangguh-dan-sporty-terbaik.html
-  [2]: http://ferry-bachtiar.blogspot.com/
+  [1]: http://ferry-bachtiar.blogspot.com/
